@@ -1,0 +1,1 @@
+Hola! Soy Bri y entraste al catalogo virtual de mi pequeño emprendimiento de bolsos, mochilas y carteras. Cualquker dida que tengas, no dudes en contactarme por mi WhatsApp 11 36671331. Gracias 💋. Saludos, Briza♡.
